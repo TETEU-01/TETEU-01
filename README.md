@@ -1,12 +1,5 @@
-- 👋 Hi, I’m @TETEU-01
-- 👀 I’m interested in futebol
-- 🌱 I’m currently learning ...
-- 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
-
-<!---
-TETEU-01/TETEU-01 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-You can click the Preview link to take a look at your changes.
---->
+O segredo é acreditar em si mesmo 💖
+Buscando sempre a evolução 🌄
+Tenha fé no processo 🛤️
+Nas vitórias e nas derrotas, sempre vou te amar, meu Corinthians! Juntos até o fim! 👊
+Ser corintiano é um sentimento que não se explica, apenas se vive intensamente! 🤔
