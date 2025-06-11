@@ -1,5 +1,5 @@
-O segredo é acreditar em si mesmo 💖
-Buscando sempre a evolução 🌄
-Tenha fé no processo 🛤️
-Nas vitórias e nas derrotas, sempre vou te amar, meu Corinthians! Juntos até o fim! 👊
-Ser corintiano é um sentimento que não se explica, apenas se vive intensamente! 🤔
+The secret is to believe in yourself 💖
+Always seeking evolution 🌄
+Have faith in the process 🛤️
+In victories and defeats, I will always love you, my Corinthians! Together until the end! 👊
+Being a Corinthians fan is a feeling that cannot be explained, it can only be lived intensely! 🤔
